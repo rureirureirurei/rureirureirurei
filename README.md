@@ -1,4 +1,3 @@
-- 👋 Hi, I’m Denys also known as @rureirureirurei 😃
 - 🤓 Applied math & computer science student
 - 📫 email : rureirureirurei@gmail.com
 - 💬 telegram : @strogo_bez_tilta
