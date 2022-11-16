@@ -1,5 +1,5 @@
 - 🤓 Applied math & computer science student
-- 📫 email : rureirureirurei@gmail.com
+- 📫 email : denys.zinoviev@gmail.com
 - 💬 telegram : @strogo_bez_tilta
 
 <!---
